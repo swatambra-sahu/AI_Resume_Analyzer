@@ -86,7 +86,7 @@ This project makes employability **measurable, explainable, and improvable**.
 
 ## 🎥 Demo Video
 ▶ **YouTube:**  
-[https://youtu.be/pKJ_H0A4WZI](https://youtu.be/pKJ_H0A4WZI)
+[https://youtu.be/uvxFvipcZGc?si=W0ZVfAQh5683Ri8e](https://youtu.be/uvxFvipcZGc?si=W0ZVfAQh5683Ri8e)
 
 ---
 
